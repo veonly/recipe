@@ -3,3 +3,4 @@
 * 2 tsp salt
 * 1/2 onion
 * 1/2 tbsp coriander
+* 2 chillies
